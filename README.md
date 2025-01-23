@@ -5,6 +5,10 @@ We're the 1980s boyband! || you can collectively call us Colby and he/him. || We
 
 please interact! we're always looking for new friends!!!
 
-- we're open to share our discord and simply plural ! just send us a whisper and ask !! :). 
+- we're open to share our discord and simply plural ! just send us a whisper and ask !! :).
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+
+our pronouns page -> https://en.pronouns.page/@1980s_boyband
+
+WHISPER TO ASK FOR DISCORD !!
