@@ -3,8 +3,14 @@
 <p align="center">
 $\color{#914D23}{\textsf{ 𝐖𝐀𝐒𝐒𝐔𝐔𝐔𝐏𝐏𝐏!!! 𝐢'𝐦 𝐂𝐨𝐥𝐛𝐲! XD}}$
 </p> 
+
+
+
 <p align="center">
-$\color{#914D23}{\textsf{i might not see you, so please make sure to whisper if i dont respond right away! :)) thank you!}}$
+$\color{#914D23}{\textsf{if you're from ponytown;}}$
+</p> 
+<p align="center">
+$\color{#914D23}{\textsf{i might not see you, so please make sure to whisper if i dont respond right away! :))}}$
 </p> 
 
 <p align="center">
