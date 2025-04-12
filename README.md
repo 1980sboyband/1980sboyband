@@ -1,4 +1,4 @@
-# 💿 ╰   ![](https://komarev.com/ghpvc/?username=1980sboybandl&color=914D23&style=flat&label=PROFILE+VIEWS&abbreviated=true) !
+# 💿 ╰   ![](https://komarev.com/ghpvc/?username=1980sboybandl&color=914D23&style=flat&label=PROFILE+VIEWS&abbreviated=true) !!
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 ╰📼 𝐖𝐀𝐒𝐒𝐔𝐔𝐔𝐏𝐏𝐏!!! 𝐢'𝐦 𝐂𝐨𝐥𝐛𝐲! || 𝐢 𝐬𝐰𝐞𝐚𝐫 𝐢 𝐝𝐨𝐧𝐭 𝐛𝐢𝐭𝐞 :)
 
@@ -17,3 +17,5 @@
 ![Brown Retro Bucket List Photo Collage (1)](https://github.com/user-attachments/assets/0027a7bd-a8a5-4258-83b6-09ec5895c7b8)
 ![Brown Retro Bucket List Photo Collage](https://github.com/user-attachments/assets/426351df-76ed-47e5-959c-436f42817586)
 
+thank you for viewing! come again!! :)
+https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExdzhwenZzZzdxNGoxMGZwbGM5ZWVqYjIxY3k3eXB5NWdkc2xzaTBhcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bnaU5MgaRcQiA/giphy.gif
