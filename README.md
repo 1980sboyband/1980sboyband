@@ -18,4 +18,4 @@
 ![Brown Retro Bucket List Photo Collage](https://github.com/user-attachments/assets/426351df-76ed-47e5-959c-436f42817586)
 
 thank you for viewing! come again!! :)
-![Alt Text]https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExdzhwenZzZzdxNGoxMGZwbGM5ZWVqYjIxY3k3eXB5NWdkc2xzaTBhcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bnaU5MgaRcQiA/giphy.gif
+![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
