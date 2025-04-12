@@ -8,9 +8,9 @@ BYI; i might not see you, so please make sure to whisper if i dont respond right
 📼> 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭! 𝐚𝐥𝐰𝐚𝐲𝐬 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐧𝐞𝐰 𝐟𝐫𝐢𝐞𝐧𝐝𝐬!!!
 📼>𝐢'𝐦 𝐨𝐩𝐞𝐧 𝐭𝐨 𝐬𝐡𝐚𝐫𝐞 𝐦𝐲 𝐝𝐢𝐬𝐜𝐨𝐫𝐝 ! 𝐣𝐮𝐬𝐭 𝐬𝐞𝐧𝐝 𝐦𝐞 𝐚 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐚𝐧𝐝 𝐚𝐬𝐤 !! :).
 
-<p align="center"> -> [CHECK OUT MY CARRD!](https://collby.carrd.co/) <-
+<p align="center"> -> [CHECK OUT MY CARRD](https://collby.carrd.co))<-
 
-▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 ![Brown Retro Bucket List Photo Collage (1)](https://github.com/user-attachments/assets/0027a7bd-a8a5-4258-83b6-09ec5895c7b8)
 ![Brown Retro Bucket List Photo Collage](https://github.com/user-attachments/assets/426351df-76ed-47e5-959c-436f42817586)
 
