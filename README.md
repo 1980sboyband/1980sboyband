@@ -1,5 +1,5 @@
 # 💿 ╰   ![](https://komarev.com/ghpvc/?username=1980sboybandl&color=914D23&style=flat&label=PROFILE+VIEWS&abbreviated=true) !!
-▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+![Screenshot_11-4-2025_201156_media discordapp net](https://github.com/user-attachments/assets/1c5094e3-4d05-4a40-8a7c-101a3ade27f3)
 ╰📼 𝐖𝐀𝐒𝐒𝐔𝐔𝐔𝐏𝐏𝐏!!! 𝐢'𝐦 𝐂𝐨𝐥𝐛𝐲! || 𝐢 𝐬𝐰𝐞𝐚𝐫 𝐢 𝐝𝐨𝐧𝐭 𝐛𝐢𝐭𝐞 :)
 BYI; i might not see you, so please make sure to whisper if i dont respond right away! :)) thank you!
 
@@ -8,9 +8,9 @@ BYI; i might not see you, so please make sure to whisper if i dont respond right
 📼> 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭! 𝐚𝐥𝐰𝐚𝐲𝐬 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐧𝐞𝐰 𝐟𝐫𝐢𝐞𝐧𝐝𝐬!!!
 📼>𝐢'𝐦 𝐨𝐩𝐞𝐧 𝐭𝐨 𝐬𝐡𝐚𝐫𝐞 𝐦𝐲 𝐝𝐢𝐬𝐜𝐨𝐫𝐝 ! 𝐣𝐮𝐬𝐭 𝐬𝐞𝐧𝐝 𝐦𝐞 𝐚 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐚𝐧𝐝 𝐚𝐬𝐤 !! :).
 
-▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+![Screenshot_11-4-2025_201156_media discordapp net](https://github.com/user-attachments/assets/1c5094e3-4d05-4a40-8a7c-101a3ade27f3)
 ╰📼 𝐜𝐚𝐫𝐫𝐝 -> https://collby.carrd.co/
-▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+![Screenshot_11-4-2025_201156_media discordapp net](https://github.com/user-attachments/assets/1c5094e3-4d05-4a40-8a7c-101a3ade27f3)
 
 -> 𝐡𝐞𝐫𝐞𝐬 𝐬𝐨𝐦𝐞 𝐨𝐟 𝐦𝐞 𝐚𝐧𝐝 𝐦𝐲 𝐩𝐚𝐫𝐭𝐧𝐞𝐫'𝐬 𝐬𝐤𝐢𝐧𝐬 𝐲𝐨𝐮 𝐦𝐚𝐲 𝐫𝐞𝐜𝐨𝐠𝐧𝐢𝐳𝐞 !!
 
