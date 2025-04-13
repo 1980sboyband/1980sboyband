@@ -22,7 +22,7 @@ $\color{#914D23}{\textsf{𝐢 𝐧𝐨𝐫𝐦𝐚𝐥𝐥𝐲 𝐩𝐥𝐚𝐲 
 <p align="center"> 
 <a href="https://collby.carrd.co/">▄▀▄▀▄▀▄▀▄▀▄!CHECK OUT MY CARRD!▄▀▄▀▄▀▄▀▄▀▄</a>
 <p align="center"> 
-<a href="https://ahsdgkjahdkbvhfdubvjfdskbnvjf.straw.page/">▄▀▄▀▄▀▄▀▄▀▄!STRAWPAGE!▄▀▄▀▄▀▄▀▄▀▄</a>
+<a href="https://collby.straw.page/">▄▀▄▀▄▀▄▀▄▀▄!STRAWPAGE!▄▀▄▀▄▀▄▀▄▀▄</a>
 <p align="center"> 
 <a href="https://github.com/1980svalentine">▄▀▄▀▄▀▄▀▄▀▄!LOVER'S GITHUB!▄▀▄▀▄▀▄▀▄▀▄</a>
 
