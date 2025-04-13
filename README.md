@@ -39,4 +39,9 @@ $\color{#914D23}{\textsf{▞▞. . ＃`₄`! 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧�
 
  <p align="center"> ▞▞. .＃``! thank you for viewing! come say hi!! :) !''＃. .▞▞
 
+<p align="center">
+![catcat](https://github.com/user-attachments/assets/9c8174ba-8d71-46d7-b79f-d8ef9a1b7265)
+
+
+
 ![Screenshot_11-4-2025_201156_media discordapp net](https://github.com/user-attachments/assets/1c5094e3-4d05-4a40-8a7c-101a3ade27f3)
