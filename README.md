@@ -1,4 +1,4 @@
-▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞.#💿▞▞![](https://komarev.com/ghpvc/?username=1980sboyband&base=69000000&color=914D23&style=for-the-badge&label=PLAYERS+VISITED&abbreviated=true)▞▞💿#.▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
+![Screenshot_12-4-2025_22720_github com](https://github.com/user-attachments/assets/3559ade0-9f0e-42c1-98fa-345971fe1582).#💿▞▞![](https://komarev.com/ghpvc/?username=1980sboyband&base=69000000&color=914D23&style=for-the-badge&label=PLAYERS+VISITED&abbreviated=true)▞▞💿#.![Screenshot_12-4-2025_22720_github com](https://github.com/user-attachments/assets/8874fab9-5469-4ba8-8d4e-c4273c042a14)
 ![Screenshot_11-4-2025_201156_media discordapp net](https://github.com/user-attachments/assets/1c5094e3-4d05-4a40-8a7c-101a3ade27f3)
 
 <p align="center">
