@@ -37,12 +37,10 @@ $\color{#914D23}{\textsf{▞▞. . ＃`₄`! 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧�
 ![pt](https://github.com/user-attachments/assets/0027a7bd-a8a5-4258-83b6-09ec5895c7b8)
 ![pt](https://github.com/user-attachments/assets/426351df-76ed-47e5-959c-436f42817586)
 
- <p align="center"> ▞▞. .＃``! thank you for viewing! come say hi!! :) !''＃. .▞▞
+<p align="center"> ▞▞. .＃``! thank you for viewing! come say hi!! :) !''＃. .▞▞!
 
 <p align="center">
-
-![catcat](https://github.com/user-attachments/assets/9c8174ba-8d71-46d7-b79f-d8ef9a1b7265)
-
-
+  <img src="https://github.com/user-attachments/assets/61e42621-fe1f-489d-bb06-f9219f4d0f87"/>
+</p>
 
 ![Screenshot_11-4-2025_201156_media discordapp net](https://github.com/user-attachments/assets/1c5094e3-4d05-4a40-8a7c-101a3ade27f3)
