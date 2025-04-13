@@ -3,8 +3,10 @@
 <p align="center">
 $\color{#914D23}{\textsf{ 𝐖𝐀𝐒𝐒𝐔𝐔𝐔𝐏𝐏𝐏!!! 𝐢'𝐦 𝐂𝐨𝐥𝐛𝐲! XD}}$
 </p> 
-
-
+<p align="center">
+✭
+<p align="center">
+✭
 
 <p align="center">
 $\color{#914D23}{\textsf{if you're from ponytown;}}$
@@ -14,7 +16,7 @@ $\color{#914D23}{\textsf{i might not see you, so please make sure to whisper if 
 </p> 
 
 <p align="center">
-$\color{#914D23}{\textsf{𝐢 𝐧𝐨𝐫𝐦𝐚𝐥𝐥𝐲 𝐩𝐥𝐚𝐲 𝐩𝐨𝐧𝐲𝐭𝐨𝐰𝐧 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐩𝐚𝐫𝐭𝐧𝐞𝐫 𝐕𝐚𝐥𝐞𝐧𝐭𝐢𝐧𝐞, 𝐬𝐨 𝐢𝐟 𝐲𝐨𝐮'𝐫𝐞 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐚𝐭 𝐭𝐡𝐢𝐬 𝐥𝐢𝐤𝐞 "𝐨𝐦𝐠 𝐢 𝐚𝐥𝐰𝐚𝐲𝐬 𝐬𝐞𝐞 𝐭𝐡𝐞𝐦 𝐭𝐨𝐠𝐞𝐭𝐡𝐞𝐫" 𝐭𝐡𝐚𝐭𝐬 𝐰𝐡𝐲!!}}$
+$\color{#914D23}{\textsf{𝐢 𝐧𝐨𝐫𝐦𝐚𝐥𝐥𝐲 𝐩𝐥𝐚𝐲 𝐩𝐨𝐧𝐲𝐭𝐨𝐰𝐧 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐩𝐚𝐫𝐭𝐧𝐞𝐫 𝐕𝐚𝐥𝐞𝐧𝐭𝐢𝐧𝐞!! :) <33 }}$
 </p>
 
 <p align="center"> ▄▀▄▀▄▀▄▀▄▀▄ 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭! 𝐚𝐥𝐰𝐚𝐲𝐬 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐧𝐞𝐰 𝐟𝐫𝐢𝐞𝐧𝐝𝐬!!! ▄▀▄▀▄▀▄▀▄▀▄
