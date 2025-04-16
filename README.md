@@ -31,7 +31,10 @@ $\color{#914D23}{\textsf{▞▞. . ＃`₄`! 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧�
 <p align="center"> 
 <a href="https://collby.straw.page/">▄▀▄▀▄▀▄▀▄▀▄!STRAWPAGE!▄▀▄▀▄▀▄▀▄▀▄</a>
 <p align="center"> 
+<a href="https://en.pronouns.page/@1980s_boyband">▄▀▄▀▄▀▄▀▄▀▄!PRONOUNS PAGE!▄▀▄▀▄▀▄▀▄▀▄</a>
+<p align="center"> 
 <a href="https://github.com/1980svalentine">▄▀▄▀▄▀▄▀▄▀▄!LOVER'S GITHUB!▄▀▄▀▄▀▄▀▄▀▄</a>
+
 
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
