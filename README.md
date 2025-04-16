@@ -43,4 +43,6 @@ $\color{#914D23}{\textsf{▞▞. . ＃`₄`! 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧�
   <img src="https://github.com/user-attachments/assets/61e42621-fe1f-489d-bb06-f9219f4d0f87"/>
 </p>
 
+![](https://komarev.com/ghpvc/?username=1980sboyband&color=914D23&style=for-the-badge&label=players+visited&abbreviated=true)
+
 ![Screenshot_11-4-2025_201156_media discordapp net](https://github.com/user-attachments/assets/1c5094e3-4d05-4a40-8a7c-101a3ade27f3)
