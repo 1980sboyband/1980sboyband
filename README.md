@@ -27,9 +27,12 @@ $\color{#914D23}{\textsf{▞▞. . ＃`₄`! 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧�
 <p align="center"> 
 <a href="https://collby.carrd.co/">▄▀▄▀▄▀▄▀▄▀▄!CHECK OUT MY CARRD!▄▀▄▀▄▀▄▀▄▀▄</a>
 <p align="center"> 
+<a href="https://walloftext.co/collby">▄▀▄▀▄▀▄▀▄▀▄!WALL OF TEXT!▄▀▄▀▄▀▄▀▄▀▄</a>
+<p align="center"> 
 <a href="https://collby.straw.page/">▄▀▄▀▄▀▄▀▄▀▄!STRAWPAGE!▄▀▄▀▄▀▄▀▄▀▄</a>
 <p align="center"> 
 <a href="https://github.com/1980svalentine">▄▀▄▀▄▀▄▀▄▀▄!LOVER'S GITHUB!▄▀▄▀▄▀▄▀▄▀▄</a>
+
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 <p align="center">  ▞▞. .＃``! These are a few of the skins you might recognize! (my partner's are on the left, i'm on the right,) !''＃. .▞▞
