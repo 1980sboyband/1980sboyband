@@ -28,7 +28,7 @@ $\color{#914D23}{\textsf{▞▞. . ＃`₄`! 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧�
 <p align="center"> 
 $\color{#914D23}{\textsf{▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞}}$
 <p align="center"> 
-$\color{#914D23}{\textsf{▞▞. .CHECK OUT THESE LINKS:. .▞▞}}$
+$\color{#914D23}{\textsf{ ⬇⬇ ▞▞. .CHECK OUT THESE LINKS:. .▞▞ ⬇⬇ }}$
 
 
 <p align="center"> 
