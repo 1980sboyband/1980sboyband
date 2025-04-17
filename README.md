@@ -35,7 +35,7 @@ $\color{#914D23}{\textsf{▞▞. .CHECK OUT THESE LINKS:. .▞▞}}$
 . . . <a href="https://collby.straw.page/">▄▀▄!STRAWPAGE!▄▀▄</a> . . .   <a href="https://collby.carrd.co/">▄▀▄!MY CARRD!▄▀▄</a> . . . <a href="https://en.pronouns.page/@1980s_boyband">▄▀▄!PRONOUNS PAGE!▄▀▄</a> . . .
 
 <p align="center"> 
-. . . <a href="https://github.com/1980svalentine">▄▀▄!LOVER'S GITHUB!▄▀▄</a> . . .  <a href="https://neospring.org/@1980s_boyband">▄▀▄!NEOSPRING!▄▀▄</a> . . .  <a <a href="https://walloftext.co/collby">▄▀▄!WALL OF TEXT!▄▀▄</a> . . .
+. . . <a href="https://github.com/1980svalentine">▄▀▄!LOVER'S GITHUB!▄▀▄</a> . . .  <a href="https://neospring.org/@1980s_boyband">▄▀▄!NEOSPRING!▄▀▄</a> . . .
 
 
 
