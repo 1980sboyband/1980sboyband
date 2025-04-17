@@ -24,16 +24,18 @@ $\color{#914D23}{\textsf{▞▞. . ＃`₃`! ᴄ+ʜ + please whisper if i dont r
 
 <p align="center"> 
 $\color{#914D23}{\textsf{▞▞. . ＃`₄`! 𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭! 𝐚𝐥𝐰𝐚𝐲𝐬 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐧𝐞𝐰 𝐟𝐫𝐢𝐞𝐧𝐝𝐬!!!. .▞▞}}$
+
 <p align="center"> 
-<a href="https://collby.carrd.co/">▄▀▄▀▄▀▄▀▄▀▄!CHECK OUT MY CARRD!▄▀▄▀▄▀▄▀▄▀▄</a>
+$\color{#914D23}{\textsf{▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞}}$
 <p align="center"> 
-<a href="https://collby.straw.page/">▄▀▄▀▄▀▄▀▄▀▄!STRAWPAGE!▄▀▄▀▄▀▄▀▄▀▄</a>
+$\color{#914D23}{\textsf{▞▞. .CHECK OUT THESE LINKS:. .▞▞}}$
+
+
 <p align="center"> 
-<a href="https://en.pronouns.page/@1980s_boyband">▄▀▄▀▄▀▄▀▄▀▄!PRONOUNS PAGE!▄▀▄▀▄▀▄▀▄▀▄</a>
+. . . <a href="https://collby.straw.page/">▄▀▄!STRAWPAGE!▄▀▄</a> . . .   <a href="https://collby.carrd.co/">▄▀▄!MY CARRD!▄▀▄</a> . . . <a href="https://en.pronouns.page/@1980s_boyband">▄▀▄!PRONOUNS PAGE!▄▀▄</a> . . .
+
 <p align="center"> 
-<a href="https://walloftext.co/collby">▄▀▄▀▄▀▄▀▄▀▄!WALL OF TEXT!▄▀▄▀▄▀▄▀▄▀▄</a>
-<p align="center"> 
-<a href="https://github.com/1980svalentine">▄▀▄▀▄▀▄▀▄▀▄!LOVER'S GITHUB!▄▀▄▀▄▀▄▀▄▀▄</a>
+. . . <a href="https://github.com/1980svalentine">▄▀▄!LOVER'S GITHUB!▄▀▄</a> . . .  <a href="https://neospring.org/@1980s_boyband">▄▀▄!NEOSPRING!▄▀▄</a> . . .  <a <a href="https://walloftext.co/collby">▄▀▄!WALL OF TEXT!▄▀▄</a> . . .
 
 
 
