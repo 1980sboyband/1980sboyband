@@ -14,7 +14,7 @@ $\color{#914D23}{\textsf{. . . VIENNA, by: Billy Joel . . .}}$
 $\color{#914D23}{\textsf{＃ `₁`! COLBY - HE/HIM - CIS-MALE ♂  ﹏🖍ᐟ  "}}$
 </p> 
 <p align="center">
-$\color{#914D23}{\textsf{▞▞. .＃`₂`!╭> LVL.17 !! < 🆅 3 ❝ＴＡＫＥＮ❞ ''~ . .▞▞}}$
+$\color{#914D23}{\textsf{▞▞. .＃`₂`!╭> LVL.18 !! < 🆅 3 ❝ＴＡＫＥＮ❞ ''~ . .▞▞}}$
 </p>
 <p align="center">
 $\color{#914D23}{\textsf{▞▞. . ＃`₃`! ᴄ+ʜ + please whisper if i dont respond ! ✔ . .▞▞}}$
