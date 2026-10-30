@@ -11,10 +11,10 @@ $\color{#914D23}{\textsf{. . . VIENNA, by: Billy Joel . . .}}$
 ✭
 
 <p align="center">
-$\color{#914D23}{\textsf{＃ `₁`! COLBY - HE/HIM - CIS-MALE ♂  ﹏🖍ᐟ  "}}$
+$\color{#914D23}{\textsf{＃ `₁`! COLBY - ASK PRNS - AMAB ♂  ﹏🖍ᐟ  "}}$
 </p> 
 <p align="center">
-$\color{#914D23}{\textsf{▞▞. .＃`₂`!╭> LVL.18 !! < 🆅 3 ❝ＴＡＫＥＮ❞ ''~ . .▞▞}}$
+$\color{#914D23}{\textsf{▞▞. .＃`₂`!╭> LVL.19 !! < 🆅 3 ❝ＴＡＫＥＮ❞ ''~ . .▞▞}}$
 </p>
 <p align="center">
 $\color{#914D23}{\textsf{▞▞. . ＃`₃`! ᴄ+ʜ + please whisper if i dont respond ! ✔ . .▞▞}}$
